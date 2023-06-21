@@ -1,0 +1,1 @@
+# HW02_5_altynbekovv_24-01
